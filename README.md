@@ -1,0 +1,2 @@
+# notamazon
+amazon copy
